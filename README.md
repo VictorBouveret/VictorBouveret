@@ -2,7 +2,7 @@
 
 ## A propos de moi 
 
-Actuellement en 3ème année de BUT informatique a Aix en provence, j'ai décidé de me spécialiser dans ce depuis le début de l'année 2021.
+Actuellement en 3ème année de BUT informatique à Dijon, j'ai décidé de me spécialiser dans ce depuis le début de l'année 2021.
 
 **Me contacter : **
 
